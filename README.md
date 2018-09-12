@@ -1,1 +1,1 @@
-# Chi Square Test and Research Design
+# student research proposal hearing
